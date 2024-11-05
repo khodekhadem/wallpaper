@@ -1,2 +1,2 @@
-#wallpapers
-fell free to add yours
+# wallpapers
+feel free to add yours
